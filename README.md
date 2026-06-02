@@ -39,8 +39,6 @@ Lo que Titus no sabe: es la única llave que existe para esas cajas. Su sangre l
 
 La Tierra, décadas después de la llegada de la Entidad. La civilización colapsó en los primeros años. Lo que queda es un planeta interrumpido — ciudades vaciadas, bosques retorcidos, océanos que cambiaron de curso.
 
-> *"No fue una guerra. Una guerra tiene dos lados. Esto fue el hambre de algo tan grande que ni siquiera nos vio."*
-
 ### Historia Cronológica
 
 **La Primera Visita**
